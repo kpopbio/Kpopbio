@@ -3,6 +3,7 @@
 ## Overview
 
 NOWZ (나우즈) is a five-member K-pop boy group under Cube Entertainment that debuted on April 2, 2024. Originally named NOWADAYS, the group rebranded to NOWZ in June 2025, symbolizing "NOW" (present) combined with "Z" (infinite possibilities). As Cube Entertainment's first boy group debut in eight years since Pentagon in 2016, NOWZ represents the fifth generation of K-pop talent, gaining recognition both domestically and internationally.
+Complete Profiles Visit: https://kpopbio.com/nowz-members-profile-bio-age/
 
 ## Group Details
 
@@ -189,7 +190,7 @@ NOWZ (나우즈) is a five-member K-pop boy group under Cube Entertainment that 
 | TikTok | @cube_nowz |
 | YouTube | CUBE_NOWADAYS |
 | Official Website | cubeent.co.kr/cube_nowadays |
-
+https://kpopbio.com/nowz-members-profile-bio-age/
 ---
 
 *Last Updated: July 2026*
